@@ -1,0 +1,1 @@
+# Curso_IA_2026_BIG_SCHOOL
